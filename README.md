@@ -1,2 +1,2 @@
 # 4Ti-zajecia
-Napisz tu swoje imie: 
+Napisz tu swoje imie: nomyzS
